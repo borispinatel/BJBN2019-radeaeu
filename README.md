@@ -11,7 +11,7 @@
 * Des douches seront mises à disposition pour les équipes qui le souhaite.Les participants étant propriétaires de leur embarcation, ils lesrécupéreront en fin d’après-midi.
 
 ## Echéances
-* Vendredi 21 Juin 2019 :  Inscriptions
+* [Vendredi 21 Juin 2019](https://www.tickcounter.com/countdown/1193016/my-countdown) :  Inscriptions
 * Samedi 29 Juin à 12h: Les radeaux devront être déposés sur le site du festival
 * Samedi 29 Juin à 15h : Cérémonie de mise à l'eau
 * Dimanche 30 Juin à 16h30 : Départ de la course
